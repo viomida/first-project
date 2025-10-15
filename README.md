@@ -1,10 +1,2 @@
-# first-project
-
-
-
-'
-'
-
-'...['p;kpou9iy uihk;l
-]
-отеркдавтирован
+sdfgdsrhdtS
+усто фойл сохранить
